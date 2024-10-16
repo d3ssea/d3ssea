@@ -1,7 +1,10 @@
-- 👋 Hi, I’m @d3ssea
-- 📍 Located in Ottawa, Ontario, Canada.
-- 👀 Interested in video games.
-- 🌱 Currently learning to better my health.
-- 💞 Trying to practice self love.
-- 😄 Pronouns: She/Her/Hers
-- ⚡ Fun fact: I've spent 1500+ hours playing Elden Ring.
+👋🏻 Hi, I’m Dessy!
+👩🏻‍🦱 Pronouns: She/Her.
+🎂 Birthday: March 5th, 1997.
+📍 Location: Ottawa, Ontario, Canada.
+🧿 Faith: Agnostic Ietsist, big fan of Lucifer.
+🎮 Interested in video games and modding.
+❤️‍🔥 Passion for mental health, faith, and spirituality.
+💯 Powered by caffeine and memes.
+⚡ Fun fact: I've spent 1500+ hours playing Elden Ring.
+🌞 PRAISE THE SUN!
