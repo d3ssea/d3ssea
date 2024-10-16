@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @d3ssea
 - 📍 Located in Ottawa, Ontario, Canada.
-- 👀 Interested in modding video games.
-- 🌱 Currently learning to better my health and to practice self love.
+- 👀 Interested in video games.
+- 🌱 Currently learning to better my health.
+- 💞 Trying to practice self love.
 - 😄 Pronouns: She/Her/Hers
 - ⚡ Fun fact: I've spent 1500+ hours playing Elden Ring.
