@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @d3ssea
 - 📍 Located in Ottawa, Ontario, Canada.
-- 👀 Interested in modding video games.
 - 🎮 Just a gamer trying to find life’s next save point.
+- 👀 Interested in modding video games.
 - 🌱 Currently learning to better my health and to practice self love.
 - 💯 Powered by caffeine and memes.
 - 😄 Pronouns: She/Her/Hers
