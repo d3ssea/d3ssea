@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @d3ssea
+- 👀 I’m interested in modding video games.
+- 🌱 I’m currently learning self love.
+- 😄 Pronouns: She/Her/Hers
+- ⚡ Fun fact: I've spent 1500+ hours playing Elden Ring.
