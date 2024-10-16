@@ -1,10 +1,10 @@
-👋🏻 Hi, I’m Dessy!
-👩🏻‍🦱 Pronouns: She/Her.
-🎂 Birthday: March 5th, 1997.
-📍 Location: Ottawa, Ontario, Canada.
-🧿 Faith: Agnostic Ietsist, big fan of Lucifer.
-🎮 Interested in video games and modding.
-❤️‍🔥 Passion for mental health, faith, and spirituality.
-💯 Powered by caffeine and memes.
-⚡ Fun fact: I've spent 1500+ hours playing Elden Ring.
-🌞 PRAISE THE SUN!
+- 👋🏻 Hi, I’m Dessy!
+- 👩🏻‍🦱 Pronouns: She/Her.
+- 🎂 Birthday: March 5th, 1997.
+- 📍 Location: Ottawa, Ontario, Canada.
+- 🧿 Faith: Agnostic Ietsist, big fan of Lucifer.
+- 🎮 Interested in video games and modding.
+- ❤️‍🔥 Passion for mental health, faith, and spirituality.
+- 💯 Powered by caffeine and memes.
+- ⚡ Fun fact: I've spent 1500+ hours playing Elden Ring.
+- 🌞 PRAISE THE SUN!
