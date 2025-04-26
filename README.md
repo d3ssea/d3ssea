@@ -2,7 +2,6 @@
 - 👩🏻‍🦱 Pronouns: She/Her.
 - 🎂 Birthday: March 5th, 1997.
 - 📍 Location: Ottawa, Ontario, Canada.
-- 🧿 Faith: Agnostic Ietsist, big fan of Satan.
 - 🎮 Interested in video games and modding.
 - ❤️‍🔥 Passion for mental health, faith, and spirituality.
 - 💯 Powered by caffeine and memes.
